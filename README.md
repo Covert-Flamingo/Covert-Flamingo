@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Covert Flamingo
+- 👀 I’m love video games
+- 🌱 I’m currently learning more about programming
